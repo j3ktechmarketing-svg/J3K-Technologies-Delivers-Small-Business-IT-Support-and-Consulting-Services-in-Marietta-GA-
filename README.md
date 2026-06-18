@@ -84,8 +84,80 @@ By combining technical knowledge with practical business understanding, J3KTechn
 
 ---
 
-## CTA: Strengthen Your Business IT Foundation Today
+## Strengthen Your Business IT Foundation Today
 
 If your business is searching for reliable IT consulting, network support, or complete technology management solutions in Marietta GA, now is the right time to upgrade your IT strategy. Partnering with experienced professionals ensures your systems remain secure, scalable, and efficient while supporting long-term growth.
 
 Reach out to explore how advanced IT support can transform your business operations and help you stay ahead in today’s competitive digital landscape.
+
+## Services We Offer
+
+| Services |
+|---|
+| Managed IT Services |
+| Managed Wireless Network Services |
+| Data Center Services |
+|Structured Cabling Services|
+|Access Control Services|
+|Video Surveillance Services|
+
+---
+
+## Locations We Serve
+
+| Locations |
+|---|
+| Atlanta |
+| Alpharetta |
+| Marietta |
+| Sandy Springs |
+| Roswell |
+| Decatur |
+| Johns Creek |
+| Duluth |
+|Lawrenceville	  |
+| Smyrna |
+| Woodstock |
+|Kennesaw  |
+| East Point |
+| Peachtree Corners |
+|Norcross |
+| Conyers Tucker |
+|Stone Mountain	|
+| Mableton |
+| Lithonia |
+|Doraville  |
+|Chamblee  |
+|Brookhaven  |
+|Vinings  |
+|Fairburn  |
+|Austell |
+|Perry	 |
+|Warner Robbins	|
+|Macon |
+
+
+---
+
+## Industries We Serve
+
+| Industries |
+|---|
+| Healthcare |
+| Financial Services |
+| Education |
+| Legal |
+| Government and Public|
+| Retail |
+| Manufacturing and Industrial |
+| Hospitality |
+| Real Estate and Property Management |
+| Technology and Software |
+| Non-Profit Organizations |
+| Real Estate and Property Management |
+| Technology and Software |
+| Transportation and Logistics |
+| Construction and Engineering |
+| Telecommunications |
+| Media Advertising |
+
